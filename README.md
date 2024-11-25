@@ -1,7 +1,6 @@
 # The Delta Portfolio 
 
-Mr Fola-Jimi Fadugba (AMF & ACPR & Comptroller of the Currency)
-né le 14/05/1984 à Nogent-le-Rotrou, France 
+Mr Fola-Jimi Fadugba (AMF & ACPR & Comptroller of the Currency of Maryland), né le 14/05/1984 à Nogent-le-Rotrou, France 
 Patent : 12366
 
 The Delta Portfolio
