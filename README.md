@@ -16,5 +16,8 @@ The Portfolio should be allowed to apply some many Christian faith based princip
 4. To give to others what we would like them to give to us
 5. To clarify the truth, the way and life
 6. To beautify the world and search love
+7. To worship God
+
+Many parts of our lifes are based on the economics and this portfolio should free us, to be able to consacrate our lifes to the most important ...
 
 
