@@ -6,8 +6,8 @@ Patent : 12366
 The Delta Portfolio
 
 The aim of this project is to build a Christian Faith Based Portfolio. For the benefit of the whole humanity, but primarily for the Christian Catholics of the Bible of Jerusalem, in his version
-of 1955 from "Les Editions du Cerf". The Delta Portfolio should be the first and the most advanced portfolio and piece of technology in the world.
-The Portfolio should be allowed to apply some many Christian faith based rules and commandments, and so on. For exemple :
+of 1955 from "Les Editions du Cerf". The Delta Portfolio should be the first and the most advanced portfolio and piece of technology in the world. A wise achievment.
+The Portfolio should be allowed to apply some many Christian faith based principles, rules and commandments, and so on. For exemple :
 
 1. The Golden Rule (to not do to the others what we wouldn't like them to do to us.
 2. Submit to Jésus-Christ the powers, principalities, dominations, etc ...
